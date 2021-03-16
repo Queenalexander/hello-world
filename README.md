@@ -1,2 +1,2 @@
 # hello-world
-Just me dong my thing, Alexander Dynasty
+Just me doing my thing, Alexander Dynasty
